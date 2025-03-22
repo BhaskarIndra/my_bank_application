@@ -162,8 +162,8 @@ cd my_bank
 ---
 
 ## 📧 Contact
-📩 Email: mailmeasradha@gmail.com  
-🔗 LinkedIn: [Profile](https://linkedin.com/in/bhaskarradha13/)  
+📩 Email: bhaskarindra621@gmail.com  
+🔗 LinkedIn: [Profile](https://linkedin.com/in/bhaskar-indra-8568a8240/)  
 
 ---
 
